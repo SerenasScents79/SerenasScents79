@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SerenasScents79
+- 👋 Hi, I’m @SerenasScent79
 - 👀 I’m interested in fragranced wax melts 
 - 🌱 I’m currently learning my skills 
 - 💞️ I’m looking to collaborate on all levels in wax business 
